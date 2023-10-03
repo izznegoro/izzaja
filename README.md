@@ -1,0 +1,2 @@
+# izzaja
+saya masih sendiri
